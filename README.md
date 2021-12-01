@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @K1R2CH8T7V
+- 👀 I’m interested in AMXX-SCRIPT
+- 🌱 I’m currently learning college
